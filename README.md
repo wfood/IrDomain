@@ -344,6 +344,13 @@ Free 3 characters Ir Domain Name
 
     ay2.ir
 
+https://wfood.ir
+https://akhbarekhoob.ir 
+https://rahbordbazar.ir 
+https://wchap.ir 
+https://wcharm.ir 
+https://wchoob.ir 
+https://goodnewsagency.ir 
 
     ay3.ir
 
